@@ -1,0 +1,38 @@
+
+
+
+![](/images/articles/1cd8f8c4-6b41-440a-af43-22e16f8119ae.jpg)
+
+
+Wicker man gaat in vlammen op bij Aan de haven
+-----------------------------------------------
+
+
+
+
+
+ Gepubliceerd: zaterdag 23 januari 2021 18:09
+   
+
+ Geschreven door: DvB
+   
+
+
+
+
+ Maandagavond was de subkampafsluiting van Aan de haven, dit gebeurde met het afbranden van de Wicker man.
+ 
+
+
+
+ Burning Man is een jaarlijks festival in de Black Rock Desert in Nevada (VS). Het evenement dankt zijn naam aan de manier waarop het wordt afgesloten: het verbranden van een grote houten pop. Aan de haven heeft zich hierdoor laten inspireren voor de subkampsluiting. De metershoge pop, de Wicker man, die tijdens het kamp is gebouwd, werd maandagavond in processie naar het terrein voor het hoofdpodium vervoerd. Dat gebeurde met een optocht achter een platte kar en trekker, met karaoke en muziek door een DJ van het subkamp. Op het hoofdpodium was weer een andere DJ en op zijn muziek vierde het subkamp een uitbundig sluitingsfeestje. Daarna werd de Wicker man prachtig afgebrand in de stookvlet. Het leuke was dat alle andere subkampen inclusief Rif ook aanwezig waren. Een spectaculaire afsluiting van dit subkamp.
+ 
+
+
+
+
+
+
+
+
+

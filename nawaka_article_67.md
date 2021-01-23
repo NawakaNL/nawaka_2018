@@ -1,0 +1,63 @@
+
+
+
+Wat is Scouting?
+-----------------
+
+
+
+
+
+ Gepubliceerd: zaterdag 23 januari 2021 18:04
+   
+
+
+
+
+ Scouting staat voor uitdaging! Bij Scouting besteden kinderen en jongeren op een actieve en uitdagende manier hun vrije tijd in de natuur. Ze hebben veel plezier met elkaar en leren om samen te werken en respect te hebben voor de ander. Zo ontwikkelen de kinderen en jongeren zich op een natuurlijke manier tot zelfstandige mensen en krijgen ze de ruimte om te ontdekken en te leren.
+ 
+
+
+
+ Scouting kent verschillende soorten: landscouting, waterscouting en luchtscouting. Ook kinderen met een beperking kunnen deelnemen aan het Scoutingspel. Binnen een Scoutinggroep zijn verschillende speltakken waarin kinderen en jongeren uit één leeftijdsgroep hun spel spelen. De leeftijdsgroepen zijn 5-7 jaar, 7-11 jaar, 11-15 jaar, 15-18 jaar en 18-21 jaar. Ouder dan 21 jaar? Ook dan biedt Scouting uitdaging als leidinggevende bij een lokale scoutinggroep, medewerker of organisator van regionale of landelijke evenementen, zoals Nawaka 2018.
+ 
+
+
+
+ Scouting Nederland is de grootste jeugd- en jongerenorganisatie van Nederland en heeft meer dan 110.000 actieve leden! De jeugdleden en vrijwilligers van Scouting zijn verdeeld over meer dan 1.100 Scoutinggroepen.
+ 
+
+
+### 
+ Waterscouting
+
+
+
+![14747504293_632a05ec70_z.jpg](/images/14747504293_632a05ec70_z.jpg)
+ Waterscouting is een “specialisatie” binnen Scouting Nederland. Het zwaartepunt van het programma voor waterscouts ligt bij het varen en alles wat daar mee te maken heeft. Waterscouts volgen het landelijke CWO-opleidingsprogramma dat ook door alle zeilscholen gebruikt wordt. Ze varen over het algemeen in de speciaal voor waterscouting ontwikkelde lelievletten. Diverse regionale en nationale wedstrijden voor lelievletten dagen de
+   
+
+ waterscouts hun zeilvaardigheden te ontwikkelen . Door waterscouting vormen veel van de leden een affiniteit met het water, veel van onze leden vinden dan ook hun weg richting de maritieme sector.
+ 
+
+
+
+ Binnen Scouting Nederland zijn ca 250 waterscouting groepen actief, waarvan ruim 80 groepen zowel waterscouting alsook landscouting bieden. Het merendeel van de waterscouts zijn actief in het Westland: rondom Rotterdam.
+   
+
+ Gemiddeld gezien is een waterscoutinggroep kleiner dan een landscoutinggroep: nog geen 2/3. Daarnaast is de gemiddelde contributie voor jeugdleden ongeveer anderhalf keer zoveel als bij een landgroep. De oorzaak van deze hogere contributie is vooral gelegen in de kosten van aanschaf en onderhoud van het varend materieel: lelievletten, wachtschip, buitenboordmotoren en brandstoffen.
+ 
+
+
+
+ Binnen de 250 groepen zijn 50 wachtschepen actief: meestal vroegere binnenvaartschepen die door overheidssaneringen beschikbaar kwamen voor scouting. De wachtschepen commissie draagt zorg voor het bijhouden van kennis & kunde voor het behoud van dit soort grote schepen en keurt ze op diverse veiligheids-aspecten. Op een Nawaka worden alleen goed-gekeurde schepen toegelaten. Bijna alle waterscoutinggroepen maken gebruik van Lelievletten: ruim 1500 vletten staan geregistreerd.
+ 
+
+
+
+ Traditioneel wordt tijdens een Nawaka minimaal 1 Lelievlet gebouwd: door enthousiaste leden en/of een school en/of een bedrijf wordt een Lelievlet in elkaar gelast en afgewerkt.
+ 
+
+
+
+

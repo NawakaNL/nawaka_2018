@@ -1,0 +1,48 @@
+
+
+
+![](https://nawaka.scouting.nl/images/articles/14540992088_0e6ce002d0_o.jpg)
+
+
+ Foto: Nawaka 2014
+ 
+
+Toko de Volle Bakskist
+-----------------------
+
+
+
+
+
+ Gepubliceerd: zaterdag 23 januari 2021 18:07
+   
+
+
+
+
+ Nu alle waterscouts nog lekker thuis uitkijken naar Nawaka, zijn wij van Toko de Volle Bakskist al in volle toeren met de voorbereiding. Zo kunnen we alle scouts (en leiding) tijdens het kamp van alle gemakken voorzien.
+ 
+
+
+
+ Om iedereen de reis naar Zeewolde te besparen, verzorgt Toko de volle bakskist dit Nawaka je grote en kleine boodschappen. Wij zijn elke dag geopend voor bijvoorbeeld een warm broodje met verse sap, lekkere snacks, een ijsje of de shampoo die je thuis in de badkamer hebt laten staan.
+ 
+
+
+
+ Daarnaast hebben we er dit jaar ook voor gekozen om wat handigheidjes in het assortiment op te nemen. Een reparatieset voor de scheur die nog steeds in je tent zit, tape en WD40 (omdat je eigenlijk niks anders nodig hebt als waterscout) of waterpistolen en waterballonnen omdat het zó ontzettend warm is!
+ 
+
+
+
+ Kortom, alles wat je nodig hebt om je bakskist te vullen! Want zoals wij graag zeggen; van een lege bakskist kan je niet leven.
+ 
+
+
+
+ Tot op Nawaka 2018!
+ 
+
+
+
+
